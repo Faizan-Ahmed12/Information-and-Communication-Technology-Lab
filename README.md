@@ -1,1 +1,0 @@
-# Information-and-Communication-Technology-Lab
